@@ -1,5 +1,6 @@
 # Buy Me A Coffee
 
+[English]
 
 **Welcome to my Coffee Jar! ☕**
 
@@ -23,7 +24,7 @@ Have fun gaming and see you on the next project! 🎮✨
 
 
 
-
+[German / Deutsch]
 
 **Willkommen in meiner Kaffeekasse! ☕**
 
