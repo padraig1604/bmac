@@ -1,4 +1,4 @@
-# bmac
+# Buy Me A Coffee
 
 
 **Welcome to my Coffee Jar! ☕**
@@ -20,6 +20,8 @@ Please don't feel pressured at all – simply playing and leaving feedback is al
 Have fun gaming and see you on the next project! 🎮✨
 
 [Patrick / Indie Developer]
+
+
 
 
 
