@@ -16,6 +16,8 @@ My goal is to keep my games completely free and free of annoying ads. Nobody sho
 **Want to buy me a coffee?**
 If you enjoy my games and want to support my work, you are very welcome to treat me to a virtual coffee here on a completely voluntary basis. Every contribution helps me cover server costs and continue developing free, ad-free games for you in the future.
 
+https://www.paypal.me/padraig1604
+
 Please don't feel pressured at all – simply playing and leaving feedback is already a huge support.
 
 Have fun gaming and see you on the next project! 🎮✨
