@@ -42,6 +42,8 @@ Mein Ziel ist es, meine Spiele komplett kostenlos und frei von nerviger Werbung 
 **Lust, einen Kaffee auszugeben?**
 Wenn dir meine Spiele gefallen und du meine Arbeit unterstützen möchtest, kannst du mir hier gerne ganz freiwillig einen virtuellen Kaffee spendieren. Jeder Beitrag hilft mir dabei, die Serverkosten zu decken und auch in Zukunft weitere kosten- und werbefreie Spiele für euch zu entwickeln.
 
+https://www.paypal.me/padraig1604
+
 Fühl dich zu absolut nichts gedrängt – allein das Spielen und das Feedback sind schon eine riesige Unterstützung.
 
 Viel Spaß beim Zocken und bis zum nächsten Projekt! 🎮✨
